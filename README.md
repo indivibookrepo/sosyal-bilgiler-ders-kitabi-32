@@ -1,0 +1,1 @@
+# sosyal-bilgiler-ders-kitabi-32
